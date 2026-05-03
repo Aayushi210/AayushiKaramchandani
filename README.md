@@ -26,4 +26,4 @@
 ---
 
 ## 📫 Connect with me
-[LinkedIn](PASTE_YOUR_LINK_HERE)
+[LinkedIn](https://www.linkedin.com/in/aayu-)
